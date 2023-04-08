@@ -1,2 +1,2 @@
-# MY-Silent-Aim-script
+# MY-Aimbot-script
 my do not steal it
